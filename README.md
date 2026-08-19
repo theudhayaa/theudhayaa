@@ -11,5 +11,5 @@
 
 ## Connect with me
 
-- [LinkedIn](https://linkedin.com/in/udhaya-bharathi)
+- [LinkedIn](https://www.linkedin.com/in/udhaya-bharathi-397a672a8?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
 - [Portfolio](https://your-portfolio.com)
